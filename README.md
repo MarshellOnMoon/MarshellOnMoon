@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Marshell/She/Her
+- 👀 I’m interested in Python/hotpot
